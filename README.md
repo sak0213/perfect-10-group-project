@@ -1,1 +1,0 @@
-# perfect-10-group-project
